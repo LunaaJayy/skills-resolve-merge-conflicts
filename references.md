@@ -1,3 +1,2 @@
-# References
 
-* octocat 1 😈
+well sometimes i go out by myself
